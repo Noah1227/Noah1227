@@ -1,2 +1,2 @@
 Just a test!
-Hope the world  fulls peace and love.
+Hope the world is full of peace and love.
